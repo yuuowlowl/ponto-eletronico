@@ -24,6 +24,7 @@ Instruções de configuração do ambiente para novos membros
 
 
 Contato
-- (14)99765-9386 - Helana
+- (14)99765-9386 - Helena
 - (14)98826-2786 - Giovana Lima
 - (14)99826-1694 - Nicolle
+- (14)99635-0310
